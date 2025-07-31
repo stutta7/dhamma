@@ -15,7 +15,7 @@ Bhikkhus, which nutrient, when offered, will lead to the rise of not yet arisen 
 
 *Atthi, bhikkhave, subhanimittaṁ[^4]. Tattha ayonisomanasikārabahulīkāro[^3]—ayamāhāro anuppannassa vā kāmacchandassa uppādāya, uppannassa vā kāmacchandassa bhiyyobhāvāya vepullāya.*
 
-That is any sign that is pleasing and likeable [^4]. The mind, having missed witnessing the beginning of the pleasing sign, is now caught up in the cycle of generating suffering by craving for the pleasant sign, [[yonisomanasikāra#ayonisomanasikāra | ayonisomanasikāra]]. Giving frequent attention with such a state of mind is the nutrient, when offered, will lead to the rise of not yet arisen desire or will strengthen the desire that has already arisen.
+That is any sign that is pleasing and likeable [^4]. The mind, having missed witnessing the beginning of the pleasing sign, is now caught up in the cycle of generating suffering by craving for the pleasant sign, [ayonisomanasikāra](/terminology/yonisomanasikara.md#ayonisomanasikāra). Giving frequent attention with such a state of mind is the nutrient, when offered, will lead to the rise of not yet arisen desire or will strengthen the desire that has already arisen.
 
 *Ko ca, bhikkhave, āhāro anuppannassa vā byāpādassa uppādāya, uppannassa vā byāpādassa bhiyyobhāvāya vepullāya?* 
 
@@ -23,7 +23,7 @@ Bhikkhus! Which nutrient, when offered, will lead to the rise of not yet arisen 
 
 *Atthi, bhikkhave, paṭighanimittaṁ. Tattha ayonisomanasikārabahulīkāro—ayamāhāro anuppannassa vā byāpādassa uppādāya, uppannassa vā byāpādassa bhiyyobhāvāya vepullāya.*
 
-That is a repulsive sign. The mind, having missed witnessing the origin, source, or beginning of the repulsive sign, is now caught up in the cycle of generating suffering by generating aversion to it,  [[yonisomanasikāra#ayonisomanasikāra | ayonisomanasikāra]]. Giving frequent attention with such a mind is the nutrient, when offered, will lead to the rise of not yet arisen ill will or will strengthen the ill will that has already arisen.
+That is a repulsive sign. The mind, having missed witnessing the origin, source, or beginning of the repulsive sign, is now caught up in the cycle of generating suffering by generating aversion to it,  [ayonisomanasikāra](/terminology/yonisomanasikara.md#ayonisomanasikāra). Giving frequent attention with such a mind is the nutrient, when offered, will lead to the rise of not yet arisen ill will or will strengthen the ill will that has already arisen.
 
 *Ko ca, bhikkhave, āhāro anuppannassa vā thinamiddhassa uppādāya, uppannassa vā thinamiddhassa bhiyyobhāvāya vepullāya?* 
 
@@ -31,7 +31,7 @@ Bhikkhus! Which nutrient, when offered, will lead to the rise of not yet arisen 
 
 *Atthi, bhikkhave, arati tandi vijambhitā bhattasammado cetaso ca līnattaṁ. Tattha ayonisomanasikārabahulīkāro—ayamāhāro anuppannassa vā thinamiddhassa uppādāya, uppannassa vā thinamiddhassa bhiyyobhāvāya vepullāya.*
 
-Those include dislike, unsatisfactoryness, laziness, yawning, sleepiness after meals, and a sluggish mind. The mind, having missed witnessing the origin, source, or beginning of the states, is now caught up in the cycle of trying to come out of it and thereby generating suffering for it by rolling in it  [[yonisomanasikāra#ayonisomanasikāra | ayonisomanasikāra]]. Giving frequent attention with such a mind is the nutrient, when offered, will lead to the rise of not yet arisen dullness and drowsiness or will strengthen the dullness and drowsiness that has already arisen.
+Those include dislike, unsatisfactoryness, laziness, yawning, sleepiness after meals, and a sluggish mind. The mind, having missed witnessing the origin, source, or beginning of the states, is now caught up in the cycle of trying to come out of it and thereby generating suffering for it by rolling in it  [ayonisomanasikāra](/terminology/yonisomanasikara.md#ayonisomanasikāra). Giving frequent attention with such a mind is the nutrient, when offered, will lead to the rise of not yet arisen dullness and drowsiness or will strengthen the dullness and drowsiness that has already arisen.
 
 *Ko ca, bhikkhave, āhāro anuppannassa vā uddhaccakukkuccassa uppādāya, uppannassa vā uddhaccakukkuccassa bhiyyobhāvāya vepullāya?* 
 
@@ -39,7 +39,7 @@ Bhikkhus! Which nutrient, when offered, will lead to the rise of not yet arisen 
 
 *Atthi, bhikkhave, cetaso avūpasamo. Tattha ayonisomanasikārabahulīkāro—ayamāhāro anuppannassa vā uddhaccakukkuccassa uppādāya, uppannassa vā uddhaccakukkuccassa bhiyyobhāvāya vepullāya.*
 
-That is a mind with no solace or an agitated mind. The mind, having missed witnessing the origin, source, or beginning, is now caught up in the cycle of generating more agitation and thereby suffering for it,[[yonisomanasikāra#ayonisomanasikāra | ayonisomanasikāra]]. Giving frequent attention with such a mind is the food, when offered, will lead to the rise of not yet arisen restlessness or will strengthen the restlessness that has already arisen.
+That is a mind with no solace or an agitated mind. The mind, having missed witnessing the origin, source, or beginning, is now caught up in the cycle of generating more agitation and thereby suffering for it,[ayonisomanasikāra](/terminology/yonisomanasikara.md#ayonisomanasikāra). Giving frequent attention with such a mind is the food, when offered, will lead to the rise of not yet arisen restlessness or will strengthen the restlessness that has already arisen.
 
 *Ko ca, bhikkhave, āhāro anuppannāya vā vicikicchāya uppādāya, uppannāya vā vicikicchāya bhiyyobhāvāya vepullāya?* 
 
@@ -47,7 +47,7 @@ Bhikkhus! Which food, when offered, will lead to the rise of not yet arisen doub
 
 *Atthi, bhikkhave, vicikicchāṭṭhānīyā dhammā. Tattha ayonisomanasikārabahulīkāro—ayamāhāro anuppannāya vā vicikicchāya uppādāya, uppannāya vā vicikicchāya bhiyyobhāvāya vepullāya.*
 
-They are the grounds whose characteristics are suitable for doubt to sustain itself. The mind, having missed witnessing the origin, source, or beginning, is now caught up in the cycle of strengthening the doubt and thereby generating suffering,[[yonisomanasikāra#ayonisomanasikāra | ayonisomanasikāra]]. Giving frequent attention to such a mind is the nutrient, when offered, will lead to the rise of not yet arisen doubt or will strengthen the doubt that has already arisen.
+They are the grounds whose characteristics are suitable for doubt to sustain itself. The mind, having missed witnessing the origin, source, or beginning, is now caught up in the cycle of strengthening the doubt and thereby generating suffering,[ayonisomanasikāra](/terminology/yonisomanasikara.md#ayonisomanasikāra). Giving frequent attention to such a mind is the nutrient, when offered, will lead to the rise of not yet arisen doubt or will strengthen the doubt that has already arisen.
 
 *Ko ca, bhikkhave, āhāro anuppannassa vā satisambojjhaṅgassa uppādāya, uppannassa vā satisambojjhaṅgassa bhāvanāya pāripūriyā?* 
 
@@ -63,7 +63,7 @@ Bhikkus! Which food, when offered, will lead to the rise of the not-yet-arisen a
 
 *Atthi, bhikkhave, kusalākusalā dhammā sāvajjānavajjā dhammā hīnapaṇītā dhammā kaṇhasukkasappaṭibhāgā dhammā. Tattha yonisomanasikārabahulīkāro—ayamāhāro anuppannassa vā dhammavicayasambojjhaṅgassa uppādāya, uppannassa vā dhammavicayasambojjhaṅgassa bhāvanāya pāripūriyā.*
 
-Bhikkhus! They are good or bad, right or wrong, pure or impure, and black or white by characteristics. A watchful mind that is paying attention to its origin, source or beginning of these characteristics as and when they arise, [[yonisomanasikāra]]. Giving frequent attention with such a mind is the nutrient that, when offered, will lead to the rise of the not-yet-arisen awakening factor of Investigation into the truth or will strengthen and fulfil the awakening factor of Investigation into the truth that has already arisen.
+Bhikkhus! They are good or bad, right or wrong, pure or impure, and black or white by characteristics. A watchful mind that is paying attention to its origin, source or beginning of these characteristics as and when they arise, [yonisomanasikāra](/terminology/yonisomanasikara.md). Giving frequent attention with such a mind is the nutrient that, when offered, will lead to the rise of the not-yet-arisen awakening factor of Investigation into the truth or will strengthen and fulfil the awakening factor of Investigation into the truth that has already arisen.
 
 *Ko ca, bhikkhave, āhāro anuppannassa vā vīriyasambojjhaṅgassa uppādāya, uppannassa vā vīriyasambojjhaṅgassa bhāvanāya pāripūriyā?* 
 
@@ -71,7 +71,7 @@ Bhikkus! Which nutrient, when offered, will lead to the rise of the not-yet-aris
 
 *Atthi, bhikkhave, ārambhadhātu nikkamadhātu parakkamadhātu. Tattha yonisomanasikārabahulīkāro—ayamāhāro anuppannassa vā vīriyasambojjhaṅgassa uppādāya, uppannassa vā vīriyasambojjhaṅgassa bhāvanāya pāripūriyā.*
 
-They are the states of initiation, persistence, and completion (perseverance).  A watchful mind that is paying attention to the beginning of these states, [[yonisomanasikāra]].  Giving frequent attention with such a mind is the nutrient that, when offered, will lead to the rise of the not-yet-arisen awakening factor of Effort or will strengthen and fulfil the awakening factor of Effort that has already arisen.
+They are the states of initiation, persistence, and completion (perseverance).  A watchful mind that is paying attention to the beginning of these states, [yonisomanasikāra](/terminology/yonisomanasikara.md).  Giving frequent attention with such a mind is the nutrient that, when offered, will lead to the rise of the not-yet-arisen awakening factor of Effort or will strengthen and fulfil the awakening factor of Effort that has already arisen.
 
 *Ko ca, bhikkhave, āhāro anuppannassa vā pītisambojjhaṅgassa uppādāya, uppannassa vā pītisambojjhaṅgassa bhāvanāya pāripūriyā?* 
 
@@ -79,7 +79,7 @@ Bhikkus! Which nutrient, when offered, will lead to the rise of the not-yet-aris
 
 *Atthi, bhikkhave, pītisambojjhaṅgaṭṭhānīyā dhammā. Tattha yonisomanasikārabahulīkāro—ayamāhāro anuppannassa vā pītisambojjhaṅgassa uppādāya, uppannassa vā pītisambojjhaṅgassa bhāvanāya pāripūriyā.*
 
-They are the grounds whose characteristics are suitable for the awakening factor of delight(*pīti*)  to sustain itself. The mind that is paying attention to its origin, source or beginning as and when they arise, [[yonisomanasikāra]]. Giving frequent attention with such a mind is the nutrient that, when offered, will lead to the rise of the not-yet arisen awakening factor of delight(*pīti*)  or will fulfil the awakening factor of delight(*pīti*)  that has already arisen.
+They are the grounds whose characteristics are suitable for the awakening factor of delight(*pīti*)  to sustain itself. The mind that is paying attention to its origin, source or beginning as and when they arise, [yonisomanasikāra](/terminology/yonisomanasikara.md). Giving frequent attention with such a mind is the nutrient that, when offered, will lead to the rise of the not-yet arisen awakening factor of delight(*pīti*)  or will fulfil the awakening factor of delight(*pīti*)  that has already arisen.
 
 *Ko ca, bhikkhave, āhāro anuppannassa vā passaddhisambojjhaṅgassa uppādāya, uppannassa vā passaddhisambojjhaṅgassa bhāvanāya pāripūriyā?* 
 
@@ -87,7 +87,7 @@ Bhikkus! Which nutrient, when offered, will lead to the rise of the not-yet-aris
 
 *Atthi, bhikkhave, kāyappassaddhi cittappassaddhi. Tattha yonisomanasikārabahulīkāro—ayamāhāro anuppannassa vā passaddhisambojjhaṅgassa uppādāya, uppannassa vā passaddhisambojjhaṅgassa bhāvanāya pāripūriyā.*
 
-That is the tranquillity of the body and the tranquillity of the mind. The mind that is watchful of its origin, source or beginning as and when they arise, [[yonisomanasikāra]]. Giving frequent attention with such a mind is the nutrient that, when offered, will lead to the rise of the not-yet arisen awakening factor of Tranquillity (*passaddhi*) or will fulfil the awakening factor of Tranquillity (*passaddhi*)  that has already arisen.
+That is the tranquillity of the body and the tranquillity of the mind. The mind that is watchful of its origin, source or beginning as and when they arise, [yonisomanasikāra](/terminology/yonisomanasikara.md). Giving frequent attention with such a mind is the nutrient that, when offered, will lead to the rise of the not-yet arisen awakening factor of Tranquillity (*passaddhi*) or will fulfil the awakening factor of Tranquillity (*passaddhi*)  that has already arisen.
 
 *Ko ca, bhikkhave, āhāro anuppannassa vā samādhisambojjhaṅgassa uppādāya, uppannassa vā samādhisambojjhaṅgassa bhāvanāya pāripūriyā?* 
 
@@ -95,7 +95,7 @@ Bhikkus! Which nutrient, when offered, will lead to the rise of the not-yet-aris
 
 *Atthi, bhikkhave, samathanimittaṁ abyagganimittaṁ. Tattha yonisomanasikārabahulīkāro—ayamāhāro anuppannassa vā samādhisambojjhaṅgassa uppādāya, uppannassa vā samādhisambojjhaṅgassa bhāvanāya pāripūriyā.*
 
-They are a sign of mental stillness, a sign of a lack of distractions. The mind that is paying attention to its origin, source or beginning as and when they arise, [[yonisomanasikāra]], is the nutrient that will lead to the rise of the not-yet-arisen awakening factor of Complete stillness (*samādhi*) or will strengthen and fulfil the awakening factor of Complete stillness (*samādhi*) that has already arisen.
+They are a sign of mental stillness, a sign of a lack of distractions. The mind that is paying attention to its origin, source or beginning as and when they arise, [yonisomanasikāra](/terminology/yonisomanasikara.md), is the nutrient that will lead to the rise of the not-yet-arisen awakening factor of Complete stillness (*samādhi*) or will strengthen and fulfil the awakening factor of Complete stillness (*samādhi*) that has already arisen.
 
 *Ko ca, bhikkhave, āhāro anuppannassa vā upekkhāsambojjhaṅgassa uppādāya, uppannassa vā upekkhāsambojjhaṅgassa bhāvanāya pāripūriyā?* 
 
